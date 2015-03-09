@@ -1,0 +1,2 @@
+# dealzshop-save-house
+Save your money a day by endless deals and offers at Dealzshop.com. we tend to assist our guests in AN economical manner with the foremost updated coupon codes at a value that comes among their budget. Brands that admire you the foremost square measure at a distance of only 1 click. Whenever you create a visit of our web site for the aim of searching type of engaging deals allow you to to save lots of additional and pay less. http://dealzshop.com/
